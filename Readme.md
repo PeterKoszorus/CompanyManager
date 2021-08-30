@@ -1,4 +1,4 @@
-# Peter Koszorús, AIS ID: 110826
+# Peter Koszorús
 
 ### Company Manager
 
